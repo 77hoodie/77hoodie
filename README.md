@@ -1,1 +1,1 @@
-![flxr](https://github.com/77hoodie/hoodie/blob/main/assets/flexflexflex.gif)
+![flxr](https://github.com/77hoodie/hoodie/blob/main/assets/newgen.gif)
